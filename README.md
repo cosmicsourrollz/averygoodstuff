@@ -2,6 +2,10 @@
 <img src=https://github.com/cosmicsourrollz/averygoodstuff/blob/de280e19b51c15c7846bb55bae3096acf7f03755/pickaxediv.gif width="950">
 </p>
 
+<p align="center">
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Pixelify+Sans&pause=1000&color=347E3F&center=true&vCenter=true&width=435&lines=%22Whatever+you+do+at+the+crossroads.;Keep+going+forward.%22" alt="Typing SVG" width="650" /></a>
+</p>
+
 HUGE WIP PLS IGNORE
 <p align="center">
 <img src=https://github.com/cosmicsourrollz/averygoodstuff/blob/6c7611ea7d690ab6b146f01ab029555e21b24997/Untitled2128_20260413122728.PNG width="750">
