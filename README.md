@@ -3,7 +3,7 @@
 </p>
 
 <p align="center">
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Pixelify+Sans&pause=1000&color=347E3F&center=true&vCenter=true&width=435&lines=%22Whatever+you+do+at+the+crossroads.;Keep+going+forward.%22" alt="Typing SVG" width="650" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Pixelify+Sans&pause=1000&color=347E3F&center=true&vCenter=true&width=435&lines=Whatever+you+do+at+the+crossroads.;Keep+going+forward." alt="Typing SVG" width="650" /></a>
 </p>
 
 <p align="center">
