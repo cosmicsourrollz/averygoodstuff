@@ -6,9 +6,8 @@
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Pixelify+Sans&pause=1000&color=347E3F&center=true&vCenter=true&width=435&lines=%22Whatever+you+do+at+the+crossroads.;Keep+going+forward.%22" alt="Typing SVG" width="650" /></a>
 </p>
 
-HUGE WIP PLS IGNORE
 <p align="center">
-<img src=https://github.com/cosmicsourrollz/averygoodstuff/blob/6c7611ea7d690ab6b146f01ab029555e21b24997/Untitled2128_20260413122728.PNG width="750">
+<img src=https://github.com/cosmicsourrollz/averygoodstuff/blob/dc999099c16b025e327f37d60357e260fda8d873/Untitled2128_20260413151624.PNG width="750">
 </p>
 
 <p align="center">
