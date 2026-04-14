@@ -43,7 +43,7 @@ fyi im genuinely really shy so im sorry if i act odd or just dont respond entire
 </details>
 
 <p align="center">
-▫
+<img src=https://github.com/cosmicsourrollz/averygoodstuff/blob/c6e5f0a1e3c0d03a06348edbdc9a71f81ee27163/avery%20nervous.gif width="65">
 </p>
 
 <details <p align="center">
@@ -61,7 +61,7 @@ fyi im genuinely really shy so im sorry if i act odd or just dont respond entire
 </p>
 
 <p align="center">
-⍤⃞
+<img src=https://github.com/cosmicsourrollz/averygoodstuff/blob/c6e5f0a1e3c0d03a06348edbdc9a71f81ee27163/slimeknight%20fishing%20rod.gif width="165">
 </p>
 
 <p align="center">
@@ -80,7 +80,7 @@ fyi im genuinely really shy so im sorry if i act odd or just dont respond entire
 </details>
 
 <p align="center">
-▫
+<img src=https://github.com/cosmicsourrollz/averygoodstuff/blob/c228fce07284a625eae9bc63f0a5dde8f538500e/avery%20pride.gif width="65">
 </p>
 
 <details <p align="center">
@@ -108,7 +108,7 @@ fyi im genuinely really shy so im sorry if i act odd or just dont respond entire
 </details>
 
 <p align="center">
- :p
+little uhhh things i forgot what theyre actually called :p
 </p>
 
 <p align="center">
@@ -116,7 +116,7 @@ fyi im genuinely really shy so im sorry if i act odd or just dont respond entire
 </p>
 
 <p align="center">
-<img src=https://github.com/cosmicsourrollz/averygoodstuff/blob/c78e3946c2897414d1a901cb833e681a5c416c12/AVERYSOCYRTE.png width="250"> <img src=https://github.com/cosmicsourrollz/averygoodstuff/blob/c78e3946c2897414d1a901cb833e681a5c416c12/averycute.png width="250"> <img src=https://github.com/cosmicsourrollz/averygoodstuff/blob/c78e3946c2897414d1a901cb833e681a5c416c12/averybooks.png width="250">
+<img src=https://github.com/cosmicsourrollz/averygoodstuff/blob/c78e3946c2897414d1a901cb833e681a5c416c12/AVERYSOCYRTE.png width="250"> <img src=https://github.com/cosmicsourrollz/averygoodstuff/blob/c78e3946c2897414d1a901cb833e681a5c416c12/averybooks.png width="250"> <img src=https://github.com/cosmicsourrollz/averygoodstuff/blob/c78e3946c2897414d1a901cb833e681a5c416c12/averycute.png width="250"> <img src=https://github.com/cosmicsourrollz/averygoodstuff/blob/c6e5f0a1e3c0d03a06348edbdc9a71f81ee27163/slimeknight%20so%20cute%20ooohhh.png width="250">
 <p align="center">
 <img src=https://github.com/cosmicsourrollz/averygoodstuff/blob/1dc8e4862720065f9eb5fd490b77b69571aca84f/wood.png width="650">
 </p>
