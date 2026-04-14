@@ -42,6 +42,10 @@ fyi im genuinely really shy so im sorry if i act odd or just dont respond entire
 
 </details>
 
+<p align="center">
+▫
+</p>
+
 <details <p align="center">
 <summary> $${\color{#679E62} ⬅ \space THIN \space ICE! }$$  </summary>
   
@@ -51,6 +55,18 @@ fyi im genuinely really shy so im sorry if i act odd or just dont respond entire
 - jokes about serious topics and things happening in the world, i just find it a bit odd
 
 </details>
+
+<p align="center">
+.
+</p>
+
+<p align="center">
+⍤⃞
+</p>
+
+<p align="center">
+.
+</p>
 
 <details <p align="center">
 <summary> $${\color{#679E62} ⬅ \space INTERACT! }$$  </summary>
@@ -62,6 +78,10 @@ fyi im genuinely really shy so im sorry if i act odd or just dont respond entire
 - 311 fans 311 311 311 3111 I LOVE 311 PLESS OHMGOSHH
 
 </details>
+
+<p align="center">
+▫
+</p>
 
 <details <p align="center">
 <summary> $${\color{#679E62} ⬅ \space FANDOMS! }$$  </summary>
