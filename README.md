@@ -117,7 +117,8 @@ fyi im genuinely really shy so im sorry if i act odd or just dont respond entire
 
 <p align="center">
 <img src=https://github.com/cosmicsourrollz/averygoodstuff/blob/1dc8e4862720065f9eb5fd490b77b69571aca84f/pickaxediv.gif width="950">
+</p>
 
 <p align="center">
-<img src=https://github.com/cosmicsourrollz/averygoodstuff/blob/bf7d0ca50f29821e326b0130748cce877ccc9911/averycutestuff.gif width="150"> <img src= <img src=https://github.com/cosmicsourrollz/averygoodstuff/blob/1ffd60d4e9416c286883cfb93c64f11a3c2c09c2/averythemayomayomayo.png width="150>
+<img src=https://github.com/cosmicsourrollz/averygoodstuff/blob/bf7d0ca50f29821e326b0130748cce877ccc9911/averycutestuff.gif width="150"> <img src=https://github.com/cosmicsourrollz/averygoodstuff/blob/1668a4e5d67fc6faeeaf0799be2e6fd05d839e2d/averythemayo.jpeg width="150"> <img src=https://github.com/cosmicsourrollz/averygoodstuff/blob/1ffd60d4e9416c286883cfb93c64f11a3c2c09c2/averythemayomayomayo.png width="150">
 </p>
