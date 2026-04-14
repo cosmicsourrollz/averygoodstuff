@@ -108,6 +108,16 @@ fyi im genuinely really shy so im sorry if i act odd or just dont respond entire
 </details>
 
 <p align="center">
+ :p
+</p>
+
+<p align="center">
+<img src=https://github.com/cosmicsourrollz/averygoodstuff/blob/1668a4e5d67fc6faeeaf0799be2e6fd05d839e2d/averythemayo.jpeg width="150"> <img src=https://github.com/cosmicsourrollz/averygoodstuff/blob/bf7d0ca50f29821e326b0130748cce877ccc9911/averycutestuff.gif width="150"> <img src=https://github.com/cosmicsourrollz/averygoodstuff/blob/1ffd60d4e9416c286883cfb93c64f11a3c2c09c2/averythemayomayomayo.png width="150"> <img src=https://github.com/cosmicsourrollz/averygoodstuff/blob/c78e3946c2897414d1a901cb833e681a5c416c12/averymore.jpeg width="150">
+</p>
+
+<p align="center">
+<img src=https://github.com/cosmicsourrollz/averygoodstuff/blob/c78e3946c2897414d1a901cb833e681a5c416c12/AVERYSOCYRTE.png width="250"> <img src=https://github.com/cosmicsourrollz/averygoodstuff/blob/c78e3946c2897414d1a901cb833e681a5c416c12/averycute.png width="250"> <img src=https://github.com/cosmicsourrollz/averygoodstuff/blob/c78e3946c2897414d1a901cb833e681a5c416c12/averybooks.png width="250">
+<p align="center">
 <img src=https://github.com/cosmicsourrollz/averygoodstuff/blob/1dc8e4862720065f9eb5fd490b77b69571aca84f/wood.png width="650">
 </p>
 
@@ -118,10 +128,3 @@ fyi im genuinely really shy so im sorry if i act odd or just dont respond entire
 <p align="center">
 <img src=https://github.com/cosmicsourrollz/averygoodstuff/blob/1dc8e4862720065f9eb5fd490b77b69571aca84f/pickaxediv.gif width="950">
 </p>
-
-<p align="center">
-<img src=https://github.com/cosmicsourrollz/averygoodstuff/blob/1668a4e5d67fc6faeeaf0799be2e6fd05d839e2d/averythemayo.jpeg width="150"> <img src=https://github.com/cosmicsourrollz/averygoodstuff/blob/bf7d0ca50f29821e326b0130748cce877ccc9911/averycutestuff.gif width="150"> <img src=https://github.com/cosmicsourrollz/averygoodstuff/blob/1ffd60d4e9416c286883cfb93c64f11a3c2c09c2/averythemayomayomayo.png width="150"> <img src=https://github.com/cosmicsourrollz/averygoodstuff/blob/c78e3946c2897414d1a901cb833e681a5c416c12/averymore.jpeg width="150">
-</p>
-
-<p align="center">
-<img src=https://github.com/cosmicsourrollz/averygoodstuff/blob/c78e3946c2897414d1a901cb833e681a5c416c12/AVERYSOCYRTE.png width="250"> <img src=https://github.com/cosmicsourrollz/averygoodstuff/blob/c78e3946c2897414d1a901cb833e681a5c416c12/averycute.png width="250"> <img src=https://github.com/cosmicsourrollz/averygoodstuff/blob/c78e3946c2897414d1a901cb833e681a5c416c12/averybooks.png width="250">
