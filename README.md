@@ -57,7 +57,7 @@ fyi im genuinely really shy so im sorry if i act odd or just dont respond entire
 </details>
 
 <p align="center">
-.
+▫
 </p>
 
 <p align="center">
@@ -65,7 +65,7 @@ fyi im genuinely really shy so im sorry if i act odd or just dont respond entire
 </p>
 
 <p align="center">
-.
+▫
 </p>
 
 <details <p align="center">
