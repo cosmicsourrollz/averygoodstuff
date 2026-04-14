@@ -32,7 +32,7 @@ fyi im genuinely really shy so im sorry if i act odd or just dont respond entire
 
 
 <details <p align="center">
-<summary> $${\color{#679E62} ⬅ \space DNI \space LIST! }$$  </summary>
+<summary> $${\color{#E8991E} ⬅ \space DNI \space LIST! }$$  </summary>
 
 - basic dni (proship, etc, anything problematic like that, please stay away from me.)
 - 18+ (unless ive known you prior/for years)
@@ -84,7 +84,7 @@ fyi im genuinely really shy so im sorry if i act odd or just dont respond entire
 </p>
 
 <details <p align="center">
-<summary> $${\color{#679E62} ⬅ \space FANDOMS! }$$  </summary>
+<summary> $${\color{#E8991E} ⬅ \space FANDOMS! }$$  </summary>
   
 (★=main fandom(s), ꩜=not as much anymore)
 
