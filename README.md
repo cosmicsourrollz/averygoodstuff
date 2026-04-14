@@ -1,5 +1,8 @@
 <p align="center">
-<img src=https://github.com/cosmicsourrollz/averygoodstuff/blob/de280e19b51c15c7846bb55bae3096acf7f03755/pickaxediv.gif width="950">
+<img src=https://github.com/cosmicsourrollz/averygoodstuff/blob/1dc8e4862720065f9eb5fd490b77b69571aca84f/pickaxediv.gif width="950">
+
+<p align="center">
+<img src=https://github.com/cosmicsourrollz/averygoodstuff/blob/1dc8e4862720065f9eb5fd490b77b69571aca84f/wood.png width="750">
 </p>
 
 <p align="center">
@@ -8,6 +11,10 @@
 
 <p align="center">
 <img src=https://github.com/cosmicsourrollz/averygoodstuff/blob/dc999099c16b025e327f37d60357e260fda8d873/Untitled2128_20260413151624.PNG width="750">
+</p>
+
+<p align="center">
+<img src=https://github.com/cosmicsourrollz/averygoodstuff/blob/1dc8e4862720065f9eb5fd490b77b69571aca84f/wood.png width="750">
 </p>
 
 <p align="center">
