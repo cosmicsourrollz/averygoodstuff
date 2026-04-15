@@ -76,6 +76,8 @@ fyi im genuinely really shy so im sorry if i act odd or just dont respond entire
 <summary> $${\color{#679E62} ⬅ \space INTERACT! }$$  </summary>
  
 - SfAWTDE/DAWTDE FANS PSLSPLPLPSLPS
+- SLIMEKNIGHT FANS PLEPSLES OHMGOSH OHMGODDVHOGOMB
+- also d3rlord3 fans/kins Hello u guys are #AWESOMESAUCE
 - DANDYS WORLD FANS TOO PLSPLS
 - if ur a friend of one of my friends!! I LOVE MEETING PEOPLEEE!!!
 - thats. kinda it?? INT IF YOU KNOW ANY OF MY FANDOMS TOOOO!!!
